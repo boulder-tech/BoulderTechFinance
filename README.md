@@ -1,4 +1,4 @@
-# BoulderTechFinance-
+# BoulderTech - The Gateway Token
 
 <br><br>
 
